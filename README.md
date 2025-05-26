@@ -1,1 +1,1 @@
-[![Fondodepantalla.jpg](https://i.postimg.cc/Kzb1PbBh/Fondodepantalla.jpg)](https://postimg.cc/R3PCmjgg)
+[![Fondodepantalla.jpg](https://i.postimg.cc/RhyBY7w1/Fondodepantalla.jpg)](https://postimg.cc/WqGCFJWt)
